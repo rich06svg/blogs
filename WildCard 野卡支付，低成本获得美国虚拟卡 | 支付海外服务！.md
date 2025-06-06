@@ -1,4 +1,4 @@
-![在这里插入图片描述](https://i.ibb.co/ynxBjjvt/deac0b84e14648debd83b76d866d8f90.png)
+![4356346](https://i.ibb.co/ynxBjjvt/deac0b84e14648debd83b76d866d8f90.png)
 一美元优惠链接：[https://yeka.ai/i/THQRWZZK](https://yeka.ai/i/THQRWZZK)
 
 **官方介绍：**
@@ -21,22 +21,22 @@
 
 WildCard 目前只支持中国大陆、香港、澳门手机号注册。
 
-![在这里插入图片描述](https://i.ibb.co/9m03p82R/821d2998b20649baad661b7f0f1f9c63.png)
+![457345756](https://i.ibb.co/9m03p82R/821d2998b20649baad661b7f0f1f9c63.png)
 
 选择会员
 
-![在这里插入图片描述](https://i.ibb.co/svBKWVMZ/595cdaa1a873469c9ca50a1efd26c899.png)
+![24562634](https://i.ibb.co/svBKWVMZ/595cdaa1a873469c9ca50a1efd26c899.png)
 
 这里输入姓名，使用英文
 
-![在这里插入图片描述](https://i.ibb.co/pv7TGyZy/3c6febfffb9949758bd2b3503d6df4be.png)
+![435756467](https://i.ibb.co/pv7TGyZy/3c6febfffb9949758bd2b3503d6df4be.png)
 
 之后使用支付宝支付开卡费用就可以完成开卡。
 
 ***注意：未实名的用户每月限额仅为$30美元！***
 
 ## 使用教程
-点击“我的卡片，选择“其它场景”![在这里插入图片描述](https://i.ibb.co/fLvWMFv/76696a08ed354c2a86e22ffd56db39de.png)
+点击“我的卡片，选择“其它场景”![32464564356](https://i.ibb.co/fLvWMFv/76696a08ed354c2a86e22ffd56db39de.png)
 然后就会出现卡片信息，填写支付即可。
 
 ## 禁用场景
